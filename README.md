@@ -21,7 +21,7 @@ To simplify credit repair and empower individuals with the tools and knowledge t
 
 ## 🧠 Learn & Grow
 
-We believe credit repair is more than just fixing errors—it's about understanding your credit profile and making informed decisions. Credio provides clear, actionable insights to help you read and interpret your credit report with confidence.
+We believe credit repair goes beyond correcting mistakes; it's about gaining a deep understanding of your credit profile and making smart, informed choices. Credio offers clear, practical insights to help you navigate and interpret your credit report with confidence.
 
 ---
 
