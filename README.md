@@ -12,9 +12,6 @@ To simplify credit repair and empower individuals with the tools and knowledge t
 
 ## 📘 What We Offer
 
-
-
-
 - Credit report analysis and score breakdown
 - Dispute and challenge negative items with credit bureaus
 - Educational resources on score factors and financial habits
